@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤝 Looking to collaborate on<br>• Beginner-friendly coding projects where teamwork actually matters<br>Currently working on<br>• Getting my fundamentals tight instead of jumping between shiny stuff<br>
+🤝 Looking to collaborate on<br>• Beginner-friendly coding projects where teamwork actually matters<br>🧑‍💻Currently working on<br>• Getting my fundamentals tight instead of jumping between shiny stuff<br>
 
 
 ## 🌐 Socials:
